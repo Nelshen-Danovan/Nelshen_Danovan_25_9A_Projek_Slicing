@@ -1,0 +1,2 @@
+# Nelshen_Danovan_25_9A_Projek_Slicing
+upload
